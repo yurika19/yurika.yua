@@ -1,0 +1,2 @@
+# yurika.yua
+OTAKU
